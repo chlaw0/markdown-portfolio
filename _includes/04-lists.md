@@ -1,1 +1,1 @@
-:smile:
+:sparkles:
